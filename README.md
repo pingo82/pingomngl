@@ -1,0 +1,2 @@
+# pingomngl
+PINGO HACKED TEAM
